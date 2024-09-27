@@ -1,1 +1,1 @@
-[Открыть сайт](www.linkedin.com/in/konstantin-zhukov-70076232a)
+[Открыть сайт](https://kohstantih.github.io/Diplom_adaptive/)
